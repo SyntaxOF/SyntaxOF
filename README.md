@@ -1,0 +1,7 @@
+- Just a developer drinking coffee☕
+- C# & Python & Java
+- Yes, I want SyntaxOfficial to become a registered trademark
+- [REDACTED] years old grammar school student in Germany, Bavaria
+- Music is another part of me
+- Very outgoing and socially active
+- Coding since I was 10 years old
