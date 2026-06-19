@@ -1,6 +1,3 @@
 - Just a developer drinking coffee☕
 - C# & Python & Java
-- [REDACTED] years old grammar school student in Germany, Bavaria
-- Music is another part of me
-- Very outgoing and socially active
-- Coding since I was 10 years old
+- Grammar school student in Germany, Bavaria
